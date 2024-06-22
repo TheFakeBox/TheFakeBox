@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on nothing so far
 - 📫 How to reach me: discord is gettherealbox
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: YouTube employee
+- ⚡ Fun fact: I like to do lots of things
 
 <!---
 TheFakeBox/TheFakeBox is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
